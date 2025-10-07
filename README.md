@@ -1,1 +1,2 @@
-# H-ctor-Basald-a
+# Héctor-Basaldúa
+Siguió los cursos de la Academia Nacional de Bellas Artes en 1916 con Pio Collivadino, al lado de compañeros como Badii, Spilimbergo, Neim, Gigli y Butler, recibiendo profesor. En 1920, comenzó su labor como escenógrafo para el teatro Colón, y en 1923 la provincia de Buenos Aires lo becó para estudiar pintura y dibujo en París. Asistió a los cursos de Charles Guerin en la Academia de Colarossi, junto a las enseñanzas de André Lhote y Otton Friez. Allí lo esperaban Butler y Badii que habían partido antes que él y que conforman el famoso Grupo de París que tanta influencia tendrán en la pintura argentina. 
